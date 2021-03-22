@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Techbrain
-- 👀 I’m interested in things that make better
+- 👀 I’m interested in things that make me the best
 - 🌱 I’m currently learning crypto bot and cryptocurrency mining
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me on techbrain19@gmail.com, 07037015748
